@@ -1,4 +1,4 @@
-# CHATA 25
+# MR CHATA 25
 
 ## Doprava
 Pre ľudí ktorí sa nebudú mať na chatu ako odviesť alebo nebudú chieť šľapať, bude zaobstaraná "istá forma", kyvadlovej dopravy z pred hlavnej stanice vo Vrútkach. Rovnako budú "istá forma" kyvadlovky existovať aj na odchod z chaty. Bližšie info cca od 7.9.
@@ -26,23 +26,23 @@ Prvý krát zavedieme niečo ako nočný a ranný kľud. Znamená to že hlasná
 ### Aký bude program?
 Po minulom roka už je asi zjavné že ožrať sa už nie je primárny cieľ chaty (sekundárny). Samozrejme, proti gustu žiaden dištutát.
 
-Na úvad si dáme nejakú "light fun zoznamku", keďže sa pomaly rozrastáme.
+* Na úvad si dáme nejakú "light fun zoznamku", keďže sa pomaly rozrastáme.
 
-Minimálne jednu noc si dáme skupinový kvíz (cca 4-5 členné tými) zo širokého množstva okruhov.
+* Minimálne jednu noc si dáme skupinový kvíz (cca 4-5 členné tými) zo širokého množstva okruhov.
 
-Tradične nás večer nás neminie oldies, funky, whatever, is this even music?, diskotéka.
+* Tradične nás večer nás neminie oldies, funky, whatever, is this even music?, diskotéka.
 
-Miernu paranoju zaobstará pasívna hra Bum Bum si mŕtvy.
+* Miernu paranoju zaobstará pasívna hra Bum Bum si mŕtvy.
 
-Zahrá nám legendárna kapela "Wicked sick v novom šate" (normálne si tam donesú všetky elektrické nástroje, nie ako minulý rok).
+* Zahrá nám legendárna kapela "Wicked sick v novom šate" (normálne si tam donesú všetky elektrické nástroje, nie ako minulý rok).
 
-Kto by ma záujem čakajú nás dve "cestovateľské" prednášky (lebo sme ako na Pohode no nie?), témy sa upresnia časom.
+* Kto by ma záujem čakajú nás dve "cestovateľské" prednášky (lebo sme ako na Pohode no nie?), témy sa upresnia časom.
 
-Ak pekné počasie dá, za cca 30-40 min sa dá vyšľapať na hrebeň Martinských holí, pre silné povahy sa dá vstať aj na východ slnka.
+* Ak pekné počasie dá, za cca 30-40 min sa dá vyšľapať na hrebeň Martinských holí, pre silné povahy sa dá vstať aj na východ slnka.
 
-Najsilnejšie povahy čaká prezentácia fotiek a videí z prvej MR chaty Havranovo. Spoiler: mali sme 18 a boli sme tam trochu opití.
+* Najsilnejšie povahy čaká prezentácia fotiek a videí z prvej MR chaty Havranovo. Spoiler: mali sme 18 a boli sme tam trochu opití.
 
-Ľubovolným spoločenským hrám sa zábrany nekladú.
+* Ľubovolným spoločenským hrám sa zábrany nekladú.
 
 ## Prečo teda na obe noci?
 * je to len o pár eur viac ako za jednu
