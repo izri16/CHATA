@@ -10,10 +10,10 @@ Cena za chatu, ktorú platíme za osobu chatárke je 15 eur. Minimálne musíme 
 Predbežná cena za jednu noc bude 22 eur a cena za obe noci bude 30 eur.
 
 ### Prečo mám platiť za jednu noc 22, keď to stojí len 15?
-Ak by sme prišli všetci len na jednu noc museli by sme odísť na druhý deň už okolo 10-12 pred obedom. Práva vďaka ľudom, ktorý idú na dve noci tam ale každý kto príde len na jednu noc, môže na druhý deň (ak je to sobota) ostať do kedy chce. Cena je teda vyššia preto aby to bolo fér voči každému, kto si platí dve noci, a ako motivácia ostať rovno na obe.
+Ak by sme prišli všetci len na jednu noc (uvažujem piatok) museli by sme odísť na druhý deň už okolo 10-12 pred obedom. Práva vďaka ľudom, ktorý idú na dve noci tam ale každý kto príde len na jednu noc, môže na druhý deň (ak je to sobota) ostať do kedy chce. Cena je teda vyššia preto aby to bolo fér voči každému, kto si platí dve noci, a ako motivácia ostať rovno na obe.
 
 ### Čo ak sa vyzbiera viacej peňazí ako sa bude platiť chatárke?
-V takom prípade najskôr čiastočne pokryjú výdavky na šampanské, kyvadlovú dopravu, kapelu a iné.
+V takom prípade najskôr čiastočne pokryjú výdavky na šampanské, kyvadlovú dopravu, kapelu, spoločné jedlo a iné.
 
 ### Som vo finančnej tiesni
 Ak chceš prísť na chatu ale financie ti nie sú zrovna naklonené napíš mi osobnú správu alebo zavolaj. Skúsime sa nejako dohodnúť, prípadne príjmeme istý typ dobrovoľníctva :smile .
@@ -51,6 +51,6 @@ Po minulom roka už je asi zjavné že ožrať sa už nie je primárny cieľ cha
 * lebo Richard a Mikoš si to myslia
 
 ## Jedlo
-Vzhľadom na očakávaný počet ľudí, bude najlepšie ak si každý jedlo zaobstará sám. V chate je pomerne veĺká kuchynka, čiže sa dajú uvariť jednoduhšie jedlá alebo opekať.
+Vzhľadom na očakávaný počet ľudí, bude najlepšie ak si každý jedlo zaobstará sám. V chate je pomerne veĺká kuchynka, čiže sa dajú uvariť jednoduhšie jedlá alebo opekať. Avšak objaví sa aj hlasovanie o záujem o spoločný guláš, ktorého by sa ujaj šéfkuchár Mikoš.
 
 ## Viac info coming soon ...
