@@ -18,11 +18,6 @@ V takom prípade najskôr čiastočne pokryjú výdavky na šampanské, kyvadlov
 ### Som vo finančnej tiesni
 Ak chceš prísť na chatu ale financie ti nie sú zrovna naklonené napíš mi osobnú správu alebo zavolaj. Skúsime sa nejako dohodnúť, prípadne príjmeme istý typ dobrovoľníctva :smile .
 
-## Jedna alebo dve noci?
-
-### Po prvej noci som aj tak taký rozbitý, že druhú nedávam.
-Prvý krát zavedieme niečo ako nočný a ranný kľud. Znamená to že hlasná hudba sa prvú noc vypne o 2:00, aby kto chce, už mohol v kľude spať. Horné poschodie chaty skúsime vyhradiť tým, ktorí by ranný/nočný kľud ocenili najviac.
-
 ### Aký bude program?
 Po minulom roka už je asi zjavné že ožrať sa už nie je primárny cieľ chaty (sekundárny). Samozrejme, proti gustu žiaden dištutát.
 
@@ -44,11 +39,13 @@ Po minulom roka už je asi zjavné že ožrať sa už nie je primárny cieľ cha
 
 * Ľubovolným spoločenským hrám sa zábrany nekladú.
 
-## Prečo teda na obe noci?
+### Prečo na obe noci?
 * je to len o pár eur viac ako za jednu
 * kvíz, kapela aj diskotéka budú super a všetko za jednu noc nestihneš
-* prídeš minimálne o 30% zážitkov
+* prídeš o 50% zážitkov
+* ak sa prvú noc strašne rozbiješ, stále si môžeš pamätať druhú noc
 * lebo Richard a Mikoš si to myslia
+* horné poschodie chaty ohráni pred hlukom tých, ktorý sa budú potrebovať lepšie vyspať, aby boli fresh aj druhú noc
 
 ## Jedlo
 Vzhľadom na očakávaný počet ľudí, bude najlepšie ak si každý jedlo zaobstará sám. V chate je pomerne veĺká kuchynka, čiže sa dajú uvariť jednoduhšie jedlá alebo opekať. Avšak objaví sa aj hlasovanie o záujem o spoločný guláš, ktorého by sa ujaj šéfkuchár Mikoš.
