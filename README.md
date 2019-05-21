@@ -18,6 +18,9 @@ V takom prípade najskôr čiastočne pokryjú výdavky na šampanské, kyvadlov
 ### Som vo finančnej tiesni
 Ak chceš prísť na chatu ale financie ti nie sú zrovna naklonené napíš mi osobnú správu alebo zavolaj. Skúsime sa nejako dohodnúť, prípadne príjmeme istý typ dobrovoľníctva :smile .
 
+### Ako sa bude platiť
+Časom pridám číslo účtu a ideálne bude poslať peniaze na účet v predstihu, aby sme mali čo najlepší prehľad a vedeli povedať presný počet chatárke. Samozrejme, ak sa niekto rozhodne na poslednú chvíľu, bude sa dať platiť aj na mieste.
+
 ### Aký bude program?
 Po minulom roka už je asi zjavné že ožrať sa už nie je primárny cieľ chaty (sekundárny). Samozrejme, proti gustu žiaden dištutát.
 
